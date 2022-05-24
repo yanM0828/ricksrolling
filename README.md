@@ -1,2 +1,0 @@
-# ricksrolling
-for senior prank
